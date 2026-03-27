@@ -1,0 +1,1 @@
+# NDVI-Distribution-over-Landslide-Prone-Areas-of-Darjeeling-Soreng-region
